@@ -3,9 +3,9 @@
 
 My father, Glenn Morton, changed his views on creation and evolution multiple times in his life. He struggled with his faith mightily as he worked to harmonize his faith with the facts that he saw in his work as a geophysicist. The fruit of his labor culminated in two books, both written in his middle age:
 
-Adam, Apes and Anthropology (1997, ISBN 0-9648227-2-5)
-
 Foundation, Fall and Flood (1994, ISBN 0-9648227-1-7)
+
+Adam, Apes and Anthropology (1997, ISBN 0-9648227-2-5)
 
 In 2015, he decided to release them into the public domain and posted the PDFs of the books on his website. Later, around 2018, his views began to change, and fearing the negative effects his books may have on the faith of some, he subsequently removed them from his website. Nevertheless, the PDF copies were out, and there are some who are repackaging and selling his books online. While we cannot stop them, given that my father had turned his book over to the public domain, we can at least reduce the profiteering by providing them free of charge to all who are interested.
 

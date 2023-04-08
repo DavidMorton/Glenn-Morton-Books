@@ -1,7 +1,7 @@
-# Glenn-Morton-Books
+# Glenn R. Morton Books
 ## Public Domain books by Glenn Morton
 
-My father, Glenn Morton, changed his views on creation and evolution multiple times in his life. He struggled with his faith mightily as he worked to harmonize his faith with the facts that he saw in his work as a geophysicist. The fruit of his labor culminated in two books, both written in his middle age:
+My father, Glenn Morton, changed his views on creationism and evolution multiple times in his life. He struggled with his faith mightily as he worked to harmonize his faith with the facts that he saw in his work as a geophysicist. The fruit of his labor culminated in two books, both written in his middle age:
 
 Foundation, Fall and Flood (1994, ISBN 0-9648227-1-7)
 
